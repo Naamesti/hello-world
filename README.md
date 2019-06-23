@@ -1,1 +1,3 @@
 # hello-world
+
+I am 17 and go to San Marcos High School. I work at Whataburger. I work on the grill and make the meat patties. I like to play video games in my free time. I play with my cousin and our friends. We play a lot of shooter games like Rainbow 6 Seige and Call of Duty. I also like to watch a lot of youtube videos about various topics that range from gaming to car videos. I have a cat named Chilli Boi and a blue heeler puppy named Buddy Boi. For the rest of the 2019 summer I will be moving into a VERY small studio apartment. As I want to go to college in San Antonio I will get to see if I like the San Antonio Atmosphere.
